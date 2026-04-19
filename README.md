@@ -1,2 +1,1 @@
-# embreve
-Página de divulgação
+# VPN segura e rápida com infraestrutura nacional.
